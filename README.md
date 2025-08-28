@@ -1,0 +1,1 @@
+# techcareer-veri-bilimi-yaz-kampi
